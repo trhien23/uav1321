@@ -1,1 +1,2 @@
-Hello mấy thằng ngu Hướng Tín Vũ Sơn, là tao Hiển đây
+Hello mấy thằng ngu Hiển Tín Vũ Sơn, là tao Hướng đây
+Liên quân đê mấy thằng ngu
